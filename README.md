@@ -1,1 +1,2 @@
-My Discord is Demdun#6642.
+My Discord: Demdun#6642
+
